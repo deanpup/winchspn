@@ -1,7 +1,7 @@
-## Hi there 👋
+## meet me!
 
 <!--
-**winchspn/winchspn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+my name is Hydra/Dean. I'm a very extroverted person, so i like finding friends.
 
 Here are some ideas to get you started:
 
