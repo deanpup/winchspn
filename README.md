@@ -1,6 +1,6 @@
 ## meet me!
   ∘₊✧──────✧₊∘
-my name is Hydra/Dean. I'm a very extroverted person, so i like finding friends.
+my name is Rex/Dean. I'm a very extroverted person, so i like finding friends.
 
 here are some of my interests!
 
